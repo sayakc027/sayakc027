@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **Data Analytics, Visualization, Business Intelligence**
 
-- 📫 How to reach me **sayak.chakraborty.027@gmail.com**
+- 📫 How to reach me **sayak027.work@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1XHyLbS89qC9LsyqGvIsoS0lIuFph4WeF/view?usp=sharing](https://drive.google.com/file/d/1XHyLbS89qC9LsyqGvIsoS0lIuFph4WeF/view?usp=sharing)
 
